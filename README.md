@@ -1,0 +1,1 @@
+# fastfoodfinance.github.io
